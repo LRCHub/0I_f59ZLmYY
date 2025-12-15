@@ -1,0 +1,72 @@
+# The Chainsmokers – Young
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Young, we were so young when we
+thought that we know how to love
+Fought about anything,
+everything led to dysfunction
+We just gotta own that shit,
+don't let it go like this
+And maybe we can grow from this, yeah
+We both know I go too far,
+like when I wrecked your car
+And almost fought your father when
+he pushed me in the yard
+And all those nights we snuck out,
+had to meet up at the park
+Don't worry my love;
+we're learning to love
+But it's hard when you're young
+Yeah, it's hard when you're young
+Caught we were caught up and the high
+it was better than drugs
+Too hard to see that it all would
+lead to destruction
+At least we both know that shit
+We just gotta own this shit
+I hope we can grow from this
+We both know I go too far,
+like when I wrecked your car
+And almost fought your father
+when he pushed me in the yard
+And all those nights we snuck out,
+had to meet up at the park
+Don't worry my love;
+we're learning to love
+But it's hard when you're young
+Yeah, it's hard when you're young
+Yeah yeah it's hard when you're young
+I'm calling you up
+You tell me it's over
+Say what you want
+But it's hard when you're young
+I'm calling you up
+You tell me it's over
+Say what you want
+But it's hard when you're young
+We both know I go too far,
+like when I wrecked your car
+And almost fought your father
+when he pushed me in the yard
+And all those nights we snuck out,
+had to meet up at the park
+Don't worry my love; we're learning to love
+But it's hard when you're young
+I'm calling you up
+You tell me it's over
+Say what you want
+But it's hard when you're young
+I'm calling you up
+You tell me it's over
+You say what you want
+But it's hard when you're young
+Yeah it's hard when you're young
+Yeah it's hard when you're young
+Yeah, yeah it's hard when you're young
+I'm calling you up
+You tell me it's over
+Say what you want
+But it's hard when you're young
+```
